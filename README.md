@@ -1,4 +1,4 @@
-# IT-REX
+# Sample Picture of the Business Card
 
 
 
